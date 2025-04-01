@@ -1,7 +1,7 @@
 # 最新地址发布页
 
 
-2月21最新地址（无需翻墙）：[chimi266.cc](https://chimi266.cc/)
+2月21最新地址（无需翻墙）：[chimi10.cc](https://chimi10.cc/)
 
 永久域名：https://chimiav.com/ 
 
